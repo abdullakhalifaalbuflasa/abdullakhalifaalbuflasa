@@ -1,3 +1,6 @@
+عبـــــــدالله خلـــــــيفة
+https://abdullakhalifa.com
+
 Abdullah Khalifa and His Intellectual Project: Idealist Trends in Arab-Islamic Philosophy
 Introduction
 
